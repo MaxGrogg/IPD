@@ -7,14 +7,14 @@ Add your name to the list below:
 2. 
 3. 
 4. 
-5. 
+5. Max Grogg
 6. 
 7. 
 8. 
 9. 
 10. 
 11. 
-12. Caleb Berger 
+12.  
 13. 
 14.  
 15. 
